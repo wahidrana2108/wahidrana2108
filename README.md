@@ -22,7 +22,7 @@
 
 - 📫 How to reach me **wahidzamanrana@gmail.com**
 
-- 📄 Know about my experiences [www.resumelink.com](www.resumelink.com)
+- 📄 Know about my experiences [www.resumelink.com](https://mdwahiduzzaman.tiiny.site)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
